@@ -1,0 +1,1 @@
+# galaxys10vsiphone12
